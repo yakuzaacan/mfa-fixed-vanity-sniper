@@ -1,4 +1,4 @@
-# Published by Yakuza and Maflex
+# Published by Yakuza
 
 # +200 STAR NEW SNİPER :) FAST
 Sanalın Salak Saçma Maymun Sözde Snipçi Arkadaşları Alın Kullanın :D 
@@ -8,5 +8,4 @@ EXE BYPASSLANMIŞTIR HİÇ Bİ ŞEKİLDE LİSANS İSTEMEZ ALIN PAŞA PAŞA KULLA
 EXE IS BYPASSED, NO LICENSE REQUIRED. BUY AND USE ASAP
 
 
-developers discord nick @tdvx, @66nd
-discord.gg/82
+developers discord nick @yakuzacan34
